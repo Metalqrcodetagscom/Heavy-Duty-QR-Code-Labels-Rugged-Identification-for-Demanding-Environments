@@ -1,0 +1,1 @@
+# Heavy-Duty-QR-Code-Labels-Rugged-Identification-for-Demanding-Environments
